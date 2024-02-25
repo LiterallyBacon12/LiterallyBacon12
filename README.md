@@ -1,5 +1,1 @@
-hi im literallybacon12, i make scripts. i know py, lua, css, html and that's it. i spend my fucking time in making codes so ye. fuck
-
-working currently rn on Project-Lunar Eclipse the big ass multi tool ill prob use to annoy kiddos so ye bruh.
-
-
+Hey, I'm LiterallyBacon12. A former coder that knows a bit too much. I spend days working on shit to make basic shit very easier by a press of a button.
